@@ -3,6 +3,6 @@
   
 下载地址：[https://wwi.lanzous.com/b01br9o6j](https://wwi.lanzous.com/b01br9o6j)  
 .  
-.  
+抢购QQ群：307966172，点击加入→→→[https://jq.qq.com/?_wv=1027&k=QsPTGAuP](https://jq.qq.com/?_wv=1027&k=QsPTGAuP)  
 .  
 ![image](https://github.com/yunyunv/taojinbi/blob/main/%E6%88%AA%E5%9B%BE.png)  
